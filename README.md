@@ -1,0 +1,4 @@
+-  hi, I’m erie
+-  I’m interested in idk rlly 
+-  How to reach me discord is  _.erie
+-  Pronouns: she/her/they/them
